@@ -1,4 +1,4 @@
-# Quant / Software Engineer / Web 3 Bull
+# Quant / Software Engineer / Web 3 Enthusiast
 
 Always looking for new ways to contribute, learn and grow together.
 
